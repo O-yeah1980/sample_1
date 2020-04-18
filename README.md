@@ -26,3 +26,4 @@ Things you may want to cover:
 fagsaga
 aiueo
 kakikukeko
+sasisuseso
